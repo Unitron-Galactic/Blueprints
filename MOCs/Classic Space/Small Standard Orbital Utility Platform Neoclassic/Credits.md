@@ -1,0 +1,1 @@
+Small Standard Orbital Utility Platform was created by Unitron_Galactic after the image of original Lego set-pieces from 1990-1992. Neoclassic Versions are entirely brick build and incorporate Baseplate elements.
